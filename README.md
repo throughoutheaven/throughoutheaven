@@ -9,7 +9,7 @@ im a lil reserved at first but i try my best to be friendly and seem interested 
 I LIKE EVERYTHING!!! currently hyperfixated on jjk and deathnote C: u can get a idea on some of the stuff i like in my stamps below!!! feel free to malevolently ramble about ur interests/ hyperfixations i looooovvveee listening ^o^!!!!!! <br/>
 im usually offtab or afk so whisper me if ur interacting!!!?! AND SIGN MY GUESTBOOK RAAAAAAH RAAAAAHH (threat) <br/>
 <br/>
-OKAY I DONE RAMBLE LOOK AT MY STAMPS AND BLINKIES IM COLLECTING!!!!!!! <br/>
+OKAY I DONE RAMBLE LOOK AT MY STAMPS AND BLINKIES IM COLLECTING!!!!!!! (me reminder to add ultrakill) <br/>
 <br/>
 ![](https://64.media.tumblr.com/99da0a6c941ad2594a7fb4bd15ad6525/7550965e59bdac14-ac/s250x400/476e9ab5002fe9c827583b74b727704bdb352563.gifv) 
 ![](https://64.media.tumblr.com/baab09c9f79dea23e302cde6f51b6579/7550965e59bdac14-67/s250x400/f8f3fb72dd104c93de1104f3b5f0e6170b0df39f.gifv)
@@ -151,7 +151,52 @@ OKAY I DONE RAMBLE LOOK AT MY STAMPS AND BLINKIES IM COLLECTING!!!!!!! <br/>
 ![](https://64.media.tumblr.com/66f96260fce85dbc8e62321c0260c403/abf5dee9a2cf2bcd-e6/s100x200/f0bc6ce758657f298c52ea657cb0cd7c21a00b5f.gifv)
 ![](https://64.media.tumblr.com/089330b701daf5a3210b140d22b7ecef/abf5dee9a2cf2bcd-97/s100x200/1393bfcaf7641c9248eee3b3295533a284441499.gifv)
 ![](https://64.media.tumblr.com/6e8f3c651bb51319c6bdf11c40f994c2/abf5dee9a2cf2bcd-50/s100x200/b79fd730699186fab4219e8217f6a2b657e189d2.gifv)
-
+![](https://64.media.tumblr.com/8720b400c5223c6a34eea46b601155e3/3781644197892f2a-3c/s100x200/95949f0ddcaa05fe4ac22736495bd8b681a8e287.gifv)
+![](https://64.media.tumblr.com/3f807eefddf611cff1bfabf74abbaad7/3781644197892f2a-77/s100x200/13146e4a713aaf810fd0738c6b25f076635761e0.gifv)
+![](https://64.media.tumblr.com/b01265234ffdec8bac898c5399feb456/3781644197892f2a-e5/s100x200/858cceb8637cfaa876f4751316889f761866524f.pnj)
+![](https://64.media.tumblr.com/92a16fa2aa88c3856964360ecb56e869/3781644197892f2a-99/s100x200/0ec21b8cd83cd075ded4feeee32a6caa9e589ec4.pnj)
+![](https://64.media.tumblr.com/34025c25c398b0b742bd529651173334/c9e726a4e328dd00-90/s100x200/c2d2e014f7a69b540ed6ab2861af02c467c86616.gifv)
+![](https://64.media.tumblr.com/67fc48a003056ec3ec1e75f657f37f76/c9e726a4e328dd00-43/s100x200/a42807af2bb4551813348147d20e6a18b08ab597.gifv)
+![](https://64.media.tumblr.com/c7c2c6bc22e543896d608cdaaf882fc8/c9e726a4e328dd00-24/s100x200/2bf902af17daa569ca8d3bbd45796da33cf564c8.gifv)
+![](https://64.media.tumblr.com/d86f74deaa4979c504394389e73308de/c9e726a4e328dd00-b4/s100x200/cb42e5314f7b525aceef115cd319e9c201df9dce.gifv)
+![](https://64.media.tumblr.com/16921a3c432a1226f71ed2eabb8218b3/0c88fac5502dfd6c-41/s100x200/8228d68156df0f1fad2e50ea7d7c9e559839bb2c.gifv)
+![](https://64.media.tumblr.com/5e29d6f3984d6d4d29d0ae034a102db4/0c88fac5502dfd6c-37/s100x200/8cd170a22990eb4b9c02c0768d7caa4cd23e123d.gifv)
+![](https://64.media.tumblr.com/f48d4f78aa428631caf227e9d1ceac5b/0c88fac5502dfd6c-28/s100x200/1430d77ad632ab8bdcf4a22456490e6fdf05013c.gifv)
+![](https://64.media.tumblr.com/e848d00a0cba79e997c9f4b0f287df4c/944da6e1329af761-c2/s100x200/e0c636c774c3cda04e27f5624e7c2d0d091505f9.pnj)
+![](https://64.media.tumblr.com/07c177157929bb33055fa56253ca71b6/944da6e1329af761-d4/s100x200/a2253ea9445d5035a1419d4245fcdf0770e71348.gifv)
+![](https://64.media.tumblr.com/4e710d760b8886a2c4c190e73542a14d/944da6e1329af761-bb/s100x200/64a7986909a7689d0a321c138baacafe19ae023d.gifv)
+![](https://64.media.tumblr.com/9900216da010a89b50584cc59e5931f2/944da6e1329af761-44/s100x200/957308cd47cb0cd0de0d28202bf5b394a79f550f.gifv)
+![](https://64.media.tumblr.com/6cc2493893a8e39058ce892e78804dbe/944da6e1329af761-c8/s100x200/6eecb02d715f0462e5c42ed5a61335fcaab62be3.gifv)
+![](https://64.media.tumblr.com/aa85c3f1b5025469ab9554c1d486cb9c/944da6e1329af761-d6/s100x200/a8fd271c52e2126047c4187d7df3429812249294.gifv)
+![](https://64.media.tumblr.com/612616b752d6f5ea44acd0f75d6d0d5b/b52f5664fe6385ea-d9/s100x200/f8c5b3ec9a6adb8dd3ffbc7cd21c5c7caf465d78.gifv)
+![](https://64.media.tumblr.com/7b4edc069ce2644b79f5a7dd73eb8556/b52f5664fe6385ea-1e/s100x200/348857e707c75512b7be9caab310decf6779bb99.gifv)
+![](https://64.media.tumblr.com/50dc9ae0304016ced4425ba5881a8953/b52f5664fe6385ea-5e/s100x200/2bd7e6ec4078200ce9e66051cd63aa0d4ee80b38.pnj)
+![](https://64.media.tumblr.com/d1e64fd9d4f5393e66aa7806be095110/b52f5664fe6385ea-bf/s100x200/659c1f0b48517edef2254c015d88c534c4a3cea0.gifv)
+![](https://64.media.tumblr.com/489d2221e3c3aab3ce99a49f61cd9e33/b52f5664fe6385ea-44/s100x200/c93db5fac564453f0755ab72e99fc5272d840606.gifv)
+![](https://64.media.tumblr.com/69acefdf3b0881ce837b2508879c9e1a/b52f5664fe6385ea-79/s100x200/f9ad519ba5e205d98189dd38c88734fc9017d572.gifv)
+![](https://64.media.tumblr.com/dd817b4f2157d55cce8a9de1980a2507/43b0ad131d56aafc-cb/s100x200/daded9fdf878cb1243ffda742fcfa1b4b09cf816.pnj)
+![](https://64.media.tumblr.com/9fcd08a2263ff377b0ae8dad916dd946/43b0ad131d56aafc-6b/s100x200/fb0c01b60075ea6bfe6d42f94ee0798e90d5600c.gifv)
+![](https://64.media.tumblr.com/ad2a5b831f1962d23776c9d6d2e3e272/4a2a9c44232fb6fd-19/s100x200/4b1ad6b61be2da18209e9811da0c775926ca608f.gifv)
+![](https://64.media.tumblr.com/b4c51bdda3351573c77a8187967912bd/1e7db048909c0aeb-27/s100x200/10de360314a4e712cdc9798b03ddf243e167ea8c.gifv)
+![](https://64.media.tumblr.com/4a8195a705587d783f9a53b8e17b0911/1e7db048909c0aeb-8c/s100x200/4c042ccec47b28df5e1c7a7e44cf8de747b1e670.gifv)
+![](https://64.media.tumblr.com/0b035d6eec1ceaf45ed40d2e90492a9a/1e7db048909c0aeb-a6/s100x200/2655d133dab5577d7ec9233a178ca3f77a22cb53.gifv)
+![](https://64.media.tumblr.com/718f9caab4270caac65f9898eca51f54/1e7db048909c0aeb-43/s100x200/3df1c8ffedfd37113cb6b9d0a7fa9ae76f0d79fa.gifv)
+![](https://64.media.tumblr.com/f902a3b862189016c6421a94bfe2a74c/1e7db048909c0aeb-5a/s100x200/a8f1afd5e14fc878ba605ff2a429890eae909933.gifv)
+![](https://64.media.tumblr.com/6f7b743c547acc7e067e016c7f4c3853/46e71519c35fadaf-f4/s100x200/e70be7b843aff1bbb9fb262df8c9e9b72fd5b054.pnj)
+![](https://64.media.tumblr.com/2eab19507579ababcd1f4bc15b1358bd/46e71519c35fadaf-40/s100x200/995bd7ddcbe9b3adcbc5d7753cff3bf6126f90ba.pnj)
+![](https://64.media.tumblr.com/c47277ee3ab75bd071349236695aa118/46e71519c35fadaf-70/s100x200/84ee4b212040141ecf195a8eeae9de828f864977.pnj)
+![](https://64.media.tumblr.com/2c551c10dc1d6f691f62068e2d0cd9b0/392e421b024fad25-b3/s100x200/df75802e094bfe13d1d25b9b1dfa193dcb89a380.webp)
+![](https://64.media.tumblr.com/8524cc1ae14306cf26a113feedfe0870/16f553eb51ea70c0-bf/s100x200/a4aff0433072f085efef1641a614815ea4b9cec4.gifv)
+![](https://64.media.tumblr.com/4731f730bcaf6242243e2f991e4a32b6/16f553eb51ea70c0-4a/s100x200/8577af4fccdd8cb8893c89a7b2edb53525a05625.pnj)
+![](https://64.media.tumblr.com/ebef4e03f74ef98edb2967fda0f4fa44/16f553eb51ea70c0-a1/s100x200/0119d2cf5e7f4e62c5c69a238bc0629c6818903d.gifv)
+![](https://64.media.tumblr.com/4b0d4214f03d759a7a8142f88dc32adf/16f553eb51ea70c0-4d/s100x200/dc69127288b0bc984435a967f7296b095fbe1ee6.pnj)
+![](https://64.media.tumblr.com/297645e4a9b7b1a324f871625486abaf/16f553eb51ea70c0-8b/s100x200/94ab9d0192f35939309ee10a765e42b5dc8eff84.pnj)
+![](https://64.media.tumblr.com/297645e4a9b7b1a324f871625486abaf/16f553eb51ea70c0-8b/s100x200/94ab9d0192f35939309ee10a765e42b5dc8eff84.pnj)
+![](https://64.media.tumblr.com/9dbc9d0eb929e3262e6452ab43570fd0/16f553eb51ea70c0-40/s100x200/5e08b0b99204e381374374a449cb0cf6634baddb.pnj)
+![](https://64.media.tumblr.com/807a99082c0d3d97a09f14babdd4ae32/3208240ef7f8a321-f3/s100x200/324e108530461d5b4ce69b51d43a92728e5c69ad.pnj)
+![](https://64.media.tumblr.com/c659cb14144063d60a343bbbda089905/3208240ef7f8a321-3f/s100x200/ea448f00cb4013e9359473a5fea919c1159cd0e4.gifv)
+![](https://64.media.tumblr.com/b8f7357a3af96c74f8f4610fd781d1f3/efda566acd1875e4-f5/s100x200/7c8aa2d1031b9748d2e5d7ad8e5a939927c9db7b.gifv)
+![](https://64.media.tumblr.com/cf77883aacd7b907179045029dfe824f/efda566acd1875e4-65/s100x200/62169bac419e7d3a5ead6805176cc5dc3977027f.gifv)
 <br/>
 ![](https://64.media.tumblr.com/7003952a3f45b2e490b4be64b1f8843d/19817939501e8355-46/s100x200/0980ed42d3893be58cc05a3829a6ec85b3ed9731.pnj)
 ![](https://64.media.tumblr.com/7a284f099759230a7cde6ef06a767666/19817939501e8355-e4/s100x200/4d746753019cfc04395a20406e33f986c437804a.jpg)
@@ -174,8 +219,7 @@ OKAY I DONE RAMBLE LOOK AT MY STAMPS AND BLINKIES IM COLLECTING!!!!!!! <br/>
 ![](https://64.media.tumblr.com/4619ac3e4856d54ade0774213657b4cf/7d460a100ee45850-10/s250x400/8649cbe94bf9dc692ea4f1373bea154a3f92c6d1.gifv)
 ![](https://64.media.tumblr.com/7bb8fdd3ca9d80ed5882eae611756d63/7d460a100ee45850-8f/s250x400/3ba29b6904afc9c666dc70412bfdaf0fd86ce569.gifv)
 ![](https://64.media.tumblr.com/e0cd4df8c34ddc479fe357a99e775025/7d460a100ee45850-ff/s250x400/0880fef9255482d0a3d6f793151f027afaf903c7.gifv)
-
-
+<br/>
 ![](https://64.media.tumblr.com/273070a71888587e222b47189ad1cdba/0174d17f62db2355-d3/s250x400/1679c177b513293bae1cde406a11b36402182bae.pnj)
 ![](https://64.media.tumblr.com/c0134310e8f3231aa9314b65dd62ebe2/0174d17f62db2355-80/s250x400/36aa9266d161b537a5d4e1d46fb4e434b5eb8ac8.pnj)
 ![](https://64.media.tumblr.com/fc47f132caa5cc4377c0056c29bd2a0e/0174d17f62db2355-b7/s250x400/63f36480d1f3db8435b7184fe5360981c4a18fb2.pnj)
